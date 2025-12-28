@@ -8,13 +8,17 @@
 
 ![](https://64.media.tumblr.com/6d7221216d1a1fff0f5d8a40be9b8553/32df1e51a0d429d1-ca/s400x600/60dd4d60cde609a2226ec9478179d1eca000525e.pnj)
 
-⋆˚࿔ DNI ![](https://64.media.tumblr.com/d10e720cd211fb86a8857e94af8b1575/88b685697c130c9e-11/s75x75_c1/5b6b759fd5d2033418c028b58070082145d9e0a4.gifv) 
+꙳•❅ INT ![](https://64.media.tumblr.com/23496d619460f6f41a716f033c2f6bcb/d424967e602f53a5-37/s75x75_c1/1427539b013d9fd489760089f0ac997f34c27a19.gifv)
 
-. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions), anyone who romantically ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
+. . Systems, uhm.. I don't know what else rn okay HELP 
 
 ![](https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/0267cbb62ed7e3e6-db/s75x75_c1/7bde32aec8eeedd466ef9fc5aa252032444ff035.gifv) Thin Ice ( ;´ - `;)
 
 . . Yumeshippers, chronically online, people who believe in "doubles" (especially applies to the previously mentioned + fictionkins), hazbin/helluva fans
+
+⋆˚࿔ DNI ![](https://64.media.tumblr.com/d10e720cd211fb86a8857e94af8b1575/88b685697c130c9e-11/s75x75_c1/5b6b759fd5d2033418c028b58070082145d9e0a4.gifv) 
+
+. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions), anyone who romantically ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
    
   ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰
 

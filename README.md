@@ -10,7 +10,7 @@
 
 ⋆˚࿔ DNI ![](https://64.media.tumblr.com/d10e720cd211fb86a8857e94af8b1575/88b685697c130c9e-11/s75x75_c1/5b6b759fd5d2033418c028b58070082145d9e0a4.gifv) 
 
-. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions), anyone who ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
+. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions), anyone who romantically ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
 
 ![](https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/0267cbb62ed7e3e6-db/s75x75_c1/7bde32aec8eeedd466ef9fc5aa252032444ff035.gifv) Thin Ice ( ;´ - `;)
 

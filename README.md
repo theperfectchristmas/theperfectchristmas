@@ -6,6 +6,8 @@
 
 ![](https://64.media.tumblr.com/ea315071fded8f517b1ac4242328d79d/90c5cf42958e75f8-4e/s75x75_c1/e0af7da49000de0166df6199660f895552b122ab.gifv) I'm 19 Y/O!! English speaking + learning russian :3 A system too but I don't really talk about it to new friends/non-systems. If u wanna talk to me more ask for my discord!! Definitely looking to make more system friends so if u r one then come grab me.. /silly.. Also a T.Bobette fictive if u couldn't tell source twins come give me a kiss I love you ₍ᐢ. .ᐢ₎
 
+ALSO MY FAV BOBETTE SHIPS ARE.. Bassie, Vee, Gigi, Ginger, Shell, Cocoa..
+
 ![](https://64.media.tumblr.com/6d7221216d1a1fff0f5d8a40be9b8553/32df1e51a0d429d1-ca/s400x600/60dd4d60cde609a2226ec9478179d1eca000525e.pnj)
 
 ꙳•❅ INT ![](https://64.media.tumblr.com/23496d619460f6f41a716f033c2f6bcb/d424967e602f53a5-37/s75x75_c1/1427539b013d9fd489760089f0ac997f34c27a19.gifv)

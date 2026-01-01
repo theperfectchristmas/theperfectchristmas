@@ -22,7 +22,7 @@ ALSO MY FAV BOBETTE SHIPS ARE.. Bassie, Vee, Gigi, Ginger, Shelly, Cocoa..
 
 ⋆˚࿔ DNI ![](https://64.media.tumblr.com/d10e720cd211fb86a8857e94af8b1575/88b685697c130c9e-11/s75x75_c1/5b6b759fd5d2033418c028b58070082145d9e0a4.gifv) 
 
-. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, if you SUPPORT proshippers or darkshippers or whatever you're JUST AS BAD, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions, and only if trying to be friends), anyone who romantically ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
+. . Intrusive questions get you blocked. General criteria, Proshippers/Darkshippers/Whatever they call themselves, if you SUPPORT proshippers or darkshippers or whatever you're JUST AS BAD, problematic fandoms (few exceptions), fakeclaimers, under 16s (VERY few exceptions, and only if trying to be friends), anyone who romantically ships Gourdy/Toodles with anyone at all, even each other, will update as needed  
    
   ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰
 

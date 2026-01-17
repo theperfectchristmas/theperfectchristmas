@@ -8,7 +8,7 @@
 
 ![](https://64.media.tumblr.com/ea315071fded8f517b1ac4242328d79d/90c5cf42958e75f8-4e/s75x75_c1/e0af7da49000de0166df6199660f895552b122ab.gifv) I'm 19 Y/O!! English speaking + learning russian :3 A system too but I don't really talk about it to new friends/non-systems. If u wanna talk to me more ask for my discord!! Also a T.Bobette fictive if u couldn't tell source twins come give me a kiss I love you ₍ᐢ. .ᐢ₎
 
-ALSO MY FAV BOBETTE SHIPS ARE.. Bassie, Vee, Gigi, Ginger, Shelly, Cocoa..
+I literally love Bassie, Bobette, Vee.. my main ship.. add Ginger in the mix maybe omg I love lesbians
 
 ![](https://64.media.tumblr.com/6d7221216d1a1fff0f5d8a40be9b8553/32df1e51a0d429d1-ca/s400x600/60dd4d60cde609a2226ec9478179d1eca000525e.pnj)
 

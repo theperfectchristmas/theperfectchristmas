@@ -6,9 +6,7 @@
 
 ── .✦ BOBBIE ⋮ SHE/IT ![](https://64.media.tumblr.com/6a0e35ef4f0db0eb92ceb3a0a18cbf00/7f3d4be7fc6cd9ab-69/s75x75_c1/457ca93b9157ad0195e26dd4ed01d6109e8f0a15.gifv)
 
-![](https://64.media.tumblr.com/ea315071fded8f517b1ac4242328d79d/90c5cf42958e75f8-4e/s75x75_c1/e0af7da49000de0166df6199660f895552b122ab.gifv) I'm 19 Y/O!! English speaking + learning russian :3 A system too but I don't really talk about it to new friends/non-systems. If u wanna talk to me more ask for my discord!! Also a T.Bobette fictive if u couldn't tell source twins come give me a kiss I love you ₍ᐢ. .ᐢ₎
-
-I love dopplebanger/mirrorshipping/wahtever its called so if you think that's problematic probably dni lmao
+![](https://64.media.tumblr.com/ea315071fded8f517b1ac4242328d79d/90c5cf42958e75f8-4e/s75x75_c1/e0af7da49000de0166df6199660f895552b122ab.gifv) I'm 20 Y/O!! :3 A system too but I don't really talk about it to new friends/non-systems. ALWAYS open to speak, but I'm very awkward!! Also a T.Bobette fictive if u couldn't tell source twins come give me a kiss I love you ₍ᐢ. .ᐢ₎
 
 ![](https://64.media.tumblr.com/6d7221216d1a1fff0f5d8a40be9b8553/32df1e51a0d429d1-ca/s400x600/60dd4d60cde609a2226ec9478179d1eca000525e.pnj)
 

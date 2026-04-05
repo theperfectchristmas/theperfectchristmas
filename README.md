@@ -1,5 +1,4 @@
 <p align="center">
-  <a href="https://github.com/angelifying">“ ♡ ”</a><br>
   <img src="https://64.media.tumblr.com/2bb8c44b8a91e02ccb1207993641f2ce/acdcaef885d6fc3e-aa/s1280x1920/3220a5a4fc3b44b1c7afc102da8a8ad7a121b579.pnj"/>
 </p>
 <p align="center">

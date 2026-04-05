@@ -1,10 +1,10 @@
 <p align="center">
   <a href="https://github.com/angelifying">“ ♡ ”</a><br>
-  <img src="https://64.media.tumblr.com/35528d73e35b1c32d7e1b20200348924/86ee090550c00d5f-b1/s640x960/aee3dc2ed1e0839c9d26cfb6d49847a794eea0f8.pnj"/>
+  <img src="https://64.media.tumblr.com/2bb8c44b8a91e02ccb1207993641f2ce/acdcaef885d6fc3e-aa/s1280x1920/3220a5a4fc3b44b1c7afc102da8a8ad7a121b579.pnj"/>
 </p>
 <p align="center">
    <b>˚ʚ♡ɞ˚</b><br>
-   <i>Cocoa!!!</i><br>
+   <i>Bobbie</i><br>
    SYS ⁃ 20 ⁃ She/They/It<br>
    ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
 

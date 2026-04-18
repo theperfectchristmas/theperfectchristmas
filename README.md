@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1381711926752575610/1494018422949023752/177627211776654767.png?ex=69e11495&is=69dfc315&hm=0a62c45addae00c39d08b60336cefca245a008a949f85e0ebe4c7bbcd330b0da&=&format=webp&quality=lossless&width=514&height=553"/>
+  <img src="https://media.discordapp.net/attachments/1381711926752575610/1494018422949023752/177627211776654767.png?ex=69e11495&is=69dfc315&hm=0a62c45addae00c39d08b60336cefca245a008a949f85e0ebe4c7bbcd330b0da&=&format=webp&quality=lossless&width=514&height=653"/>
 <p align="center">
    <b>˚ʚ♡ɞ˚</b><br>
    <i>Bobbie</i><br>
